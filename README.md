@@ -1,1 +1,6 @@
 # hello-world
+WHAT'S UP!!!
+ITProWindows here
+You could be my friend in roblox if you want...
+ITProWindows is my roblox username.
+But... I only accept R15 people...
